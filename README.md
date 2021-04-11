@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @se-senpai
+- 👀 I’m interested in languages and programming.
+- 🌱 I’m currently learning Japanese and Spanish.
+- 👋 You can reach me on Discord (s-senpai#6712) or Twitter (@AnonDorian)
